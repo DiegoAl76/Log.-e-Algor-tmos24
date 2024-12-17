@@ -1,0 +1,1 @@
+# Log.-e-Algor-tmos24
